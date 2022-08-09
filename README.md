@@ -1,2 +1,7 @@
-# sponsors
-LaMeDuSe list of sponsors
+# Our Incredible Sponsors 😍 
+
+## Organisation and Legal Entity 🏢 
+
+
+## Individual 👻
+- @warstrolo
