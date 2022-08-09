@@ -4,4 +4,4 @@
 
 
 ## Individual 👻
-- @warstrolo
+- [@warstrolo](https://github.com/warstrolo)
